@@ -1,5 +1,5 @@
 layout: page
 title: "PAGE TITLE"
-permalink: /profiles/default/
+permalink: /profiles/DEFAULT_PROFILE/
 
 Default page 
