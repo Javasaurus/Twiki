@@ -1,3 +1,3 @@
 ## Welkom bij Twiki, de wiki pagina voor Vlaamse Streamers !
 
-[a relative link](javasaurus.github.io/profile/default/)
+[a relative link](http://www.javasaurus.github.io/profile/default/)
