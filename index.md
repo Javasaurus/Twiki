@@ -2,7 +2,7 @@
 
 <details>
 <summary>West-Vlaanderen</summary>
-1. <a href="https://javasaurus.github.io/twiki/profile/default_profile.md">DEFAULT<a>
+1. <a href="https://javasaurus.github.io/twiki/profile/default.html">DEFAULT<a>
 </details>
 
 <details>
