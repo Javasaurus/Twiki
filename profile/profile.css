@@ -77,7 +77,8 @@ dt {
        border-right: 1px solid #999;  }
     
 dd { 
-
+      float: none; 
+      width:100%;
    }
    
 dd.clear {
