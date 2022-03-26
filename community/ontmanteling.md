@@ -22,7 +22,7 @@ Anyway, hieronder heb ik vier punten gepost die duidelijk de oorzaak zijn (en ge
 
 Niemand hier is een vijand. Dat is sowieso de grondslag. Dat is het grootste voordeel wat een online platform kan hebben, je kan iets uit typen zonder dat iemand je gezicht ziet, je kan dus vrijuit alles verhalen wat je maar wil. Het nadeel is... <b>niemand ziet je gezicht als je iets uit typed </b> ! Heel wat nuances gaan verloren in tekst en dat kan tot foute interpretaties leiden. Streamen doe je nooit alleen. Ik zeg niet dat iedereen een EQ moet hebben van de Dalai Lama, maar meestal is er een "waarom" aspect. Inderdaad problemen worden vaak "objectief" beschouwd, sommige zaken zijn inderdaad erger dan andere. Als ik mijn been breek en van de trap val is dat net iets erger dan "de chips zijn op en kheb honger", maar toch hebben beiden een betekenis. Het getuigt echt van een immense vorm van respect als je dit inzicht kan verkrijgen. Het heeft mijn leven alvast eenvoudiger gemaakt...
 
-En dit is zo voor ieder persoon en is <b>niet uitsluitend wederkerig</b>. Het vergt echt inzet om je in te leven in iemands redenering en dit zal sowieso niet altijd beantwoord worden met begrip voor je eigen situatie. Het voorbeeld dat ik steeds aanhaal in deze situaties :
+En dit is zo voor ieder persoon en is <b>niet uitsluitend wederkerig</b>. Het vergt echt inzet om je in te leven in iemands redenering en dit zal sowieso niet altijd beantwoord worden met begrip voor je eigen situatie. Het getuigt echt van immens respect en de wil om problemen op te lossen als je geen begrip verwacht, maar het wel kan geven. Het voorbeeld dat ik steeds aanhaal in deze situaties :
 
 Je moet dringend de kinderen ophalen. Je staat in de rij in de supermarkt... Voor jou staat een oud vrouwtje dat per see die korting moet hebben op 2 pakken koekskes en met bonnekes staat te zwaaien. Dan heb je twee opties... Je kan je interne woede opbouwen en dat mens over de kassa sleuren met haar stoeme fking bloemekeskleedje... Of je staat efkes stil en denkt waarom ze precies die koekskes wil. Misschien komen de kleinkinderen af en zit ze daar al 14 dagen naar uit te kijken en had die kleine daags ervoor gebeld dat em prince koeken wou? Is al een volledig ander gevoel toch? En zoals ik zei, ja dat is moeilijk... Ik weet bijvoorbeeld nu al dat sommigen zullen reageren "dan moet ze maar buiten de spits naar de winkel gaan", dat zei ik vroeger zelf trouwens ook... Maar door dit op zijn minst proberen toe te passen op een rustig moment kan het oorspronkelijke probleem misschien worden opgepikt (is niet hetzelfde als "opgelost"). Maar het is alvast een kapstok om een nette dialoog rond te bouwen !
 
@@ -54,7 +54,7 @@ Klinkt inderdaad eerder als een tienerprobleem dat niets uitmaakt. Maar voor de 
 
 Zoals ik al eigenlijk met heel deze tekst aangeef, er is geen kant en klare oplossing. "In dialoog gaan" zegt men vaak, maar daar moeten jullie allemaal klaar voor zijn. En het is ZEKER als hoge boom in een community niet makkelijk, want je wil niemand kwetsen. Je wil ook niet tot last zijn van de andere kant... Maar die twee maskertjes? We gooien ze in de vuilbak. Anders, en ik voorspel dit met 100% accuraatheid, ontploft de bom en vertaalt frustratie zichzelf in woorden die niet teruggenomen (kunnen) worden. Terechte woorden? Misschien, deels, sowieso.
 
-Ik stel mezelf bij deze dan ook op als neutrale grond, net omdat ik dat empatische nastreef. Als de situatie zich er toe leent, dan wil ik zelfs een stream starten en toewijden om een discussie uit te praten. Ik ben Jerry Springer niet, er gaat niet met knuffels rondgegooid worden, maar soms kan het helpen om in een zware discussie even wat insteek te krijgen van mensen die het goed bedoelen, ook uit een publiek. Vanzelfsprekend kan dit ook gewoon in een discord.
+Ik stel mezelf bij deze dan ook op als neutrale grond, net omdat ik dat empatische nastreef. Als de situatie zich er toe leent, dan wil ik zelfs een stream starten en toewijden om een discussie uit te praten. Ik ben Jerry Springer niet, er gaat niet met knuffels rondgegooid worden, maar soms kan het helpen om in een zware discussie even wat insteek te krijgen van mensen die het goed bedoelen, ook vanuit een publiek. Vanzelfsprekend kan dit ook gewoon in een discord. 
 
 
 En als je het al uitgehouden hebt om tot hier te lezen, dan weet ik alvast dat er hoop is ;) Finaal, een community bestaat uit mensen met dezelfde interesses, niet uit mensen met dezelfde vrienden.
@@ -63,6 +63,13 @@ En als je het al uitgehouden hebt om tot hier te lezen, dan weet ik alvast dat e
 Stay cool, Stay Awesome,
 
 <i>DrJavaSaurus</i>
+
+
+
+Een hier is een foto van een eclair om efkes uw gemoed te verlichten, zoals ik had beloofd. Om jullie te herinneren waar we vandaan komen ;) 
+
+<img src="https://www.patisserielietaert.be/media/catalog/product/cache/c687aa7517cf01e65c009f6943c2b1e9/e/c/eclair.jpg" alt="Een eclair" width=128px height=128px>
+
 
 
 
